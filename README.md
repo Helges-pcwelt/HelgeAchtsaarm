@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @HelgeAchtsaarm
-- 👀 I’m interested in Girls, Freeline, Mumble
-- 🌱 I’m currently learning Mumbleconfiguration
+- 👋 Hi, I’m @Helges-pcwelt
+- 👀 I’m interested in Girls, Freeline
+- 🌱 I’m currently learning everaday news
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me nearly everywhere
 
